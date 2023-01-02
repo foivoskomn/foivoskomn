@@ -1,4 +1,4 @@
-Hi, I’m @foivoskomn, a terminally online computer nerd trying to become a chad.
+Hi, I’m @foivoskomn, a terminally online computer nerd.
 
 
 <!---
